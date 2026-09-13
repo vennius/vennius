@@ -5,7 +5,7 @@
 │                                              │
 │                                              │
 │    vennius                                   │
-│    > contact for inquires                    │
+│    > contact informations below              │
 │                                              │
 │    vennius - stevennius chandra              │
 │    https://stvns.my.id                       │
