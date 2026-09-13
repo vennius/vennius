@@ -5,7 +5,7 @@
 │                                              │
 │                                              │
 │    vennius                                   │
-│    > building in private                     │
+│    > contact for inquires                    │
 │                                              │
 │    vennius - stevennius chandra              │
 │    https://stvns.my.id                       │
